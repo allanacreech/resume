@@ -1,5 +1,5 @@
 ALLANA E. CREECH
-Daytona Beach, FL | 386.871.3847 | allanacreech@gmail.com
+Daytona Beach, FL | allanacreech@gmail.com
 
 SUMMARY QUALIFICATIONS
 Dedicated full stack developer, 15+ years of combined experience in office management, business advancement, and website development. Sophisticated skills in business administration, financial management, and website analysis (including all business overhead, team goal setting & management, and online campaign tracking). Strong client relationship and acquisition skills through fundraising, school partnership, coordinating events and day-to-day client interactions.
